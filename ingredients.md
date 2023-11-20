@@ -1,3 +1,4 @@
+Enjoy mt recipe!
 Banana Split Recipe 
 
 1 banana 
@@ -7,3 +8,4 @@ Banana Split Recipe
 2 tbsp caramel sauce
 1 tbsp scor bits 
 2 scoops of whip cream 
+Enjoy my recipe!
